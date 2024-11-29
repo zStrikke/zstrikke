@@ -24,7 +24,6 @@
 
 ### Opinion Pieces
 
-#### 🗣️ ![Opinion Image](https://ficheracos.publico.es/images/thumbnails/89841.70681.jpg)
 ---
 
 ### Contact Us
